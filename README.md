@@ -1,7 +1,7 @@
 <div align="center">
 
-<img width="400" src="https://github.com/user-attachments/assets/3ddc94a6-a883-4384-8522-59a7c0019aa5" style="background-color: transparent !important;">
+  <img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/108db3ec-ecee-4c72-a0d8-cfc6edd48296" />
 
-$\color{orange}{\textbf{hihi!! this is a spam acc, block me to unfollow!! i don't check who i follow.}}$
+$\color{lightgreen}{\textbf{hihi!! this is a spam acc, block me to unfollow!! i don't check who i follow.}}$
 
-$\color{orange}{\textbf{that one squiddo.. who could it be!}}$
+$\color{Green}{\textbf{GeminiTayy}}$
