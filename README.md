@@ -4,6 +4,6 @@
 
 $\color{lightgreen}{\textbf{hihi!! this is a spam acc, block me to unfollow!! i don't check who i follow.}}$
 
-$\color{lightgreen}{\textbf{y'all githubs are very cool. i almost followed 6/00/1000 people.}}$
+$\color{lightgreen}{\textbf{extra -y'all githubs are very cool. i almost followed 6/00/1000 githubs.}}$
 
 $\color{Green}{\textbf{GeminiTayy}}$
