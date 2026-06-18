@@ -1,7 +1,7 @@
 <div align="center">
 
-  <img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/108db3ec-ecee-4c72-a0d8-cfc6edd48296" />
+  <img width="736" height="360" alt="image" src="https://files.catbox.moe/3ygsxy.jpg" />
 
-$\color{lightgreen}{\textbf{hihi!! this is a spam acc, block me to unfollow!! i don't check who i follow.}}$
+$\color{#5f785a}{\textbf{hihi!! this is a spam acc, block me to unfollow!! i don't check who i follow.}}$
 
-$\color{Green}{\textbf{GeminiTayy}}$
+$\color{#485c44}{\textbf{GeminiTayy}}$
